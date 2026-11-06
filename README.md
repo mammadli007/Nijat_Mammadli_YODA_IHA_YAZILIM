@@ -1,0 +1,1 @@
+# Nijat_Mammadli_YODA_IHA_YAZILIM
